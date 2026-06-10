@@ -2,6 +2,8 @@
 
 ## 果樹・山菜・キノコ・腐葉土で森を再生する方法
 
+[English version](README.md)
+
 [NOTE版はこちら](https://note.com/inchacomusho/n/nfa9e2b639c06)
 
 ---
