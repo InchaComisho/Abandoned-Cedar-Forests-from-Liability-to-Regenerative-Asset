@@ -614,7 +614,7 @@ https://github.com/InchaComisho/Wildlife-Is-Not-Invading-Human-Settlements/blob/
 
 Original Japanese NOTE article:
 
-放置杉林を負債から資産へ──果樹・山菜・キノコ・腐葉土で森を再生する方法
+放置杉林を負債から資産へ──果樹・山菜・キノコ・腐葉土で森を再生する方法  
 https://note.com/inchacomusho/n/nfa9e2b639c06
 
 ---
