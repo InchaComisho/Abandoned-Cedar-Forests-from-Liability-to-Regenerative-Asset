@@ -1,5 +1,7 @@
 # 放置杉林を負債から循環資産へ
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## 果樹・山菜・キノコ・腐葉土で森を再生する方法
 
 [English version](README.md)

@@ -1,5 +1,7 @@
 # From Abandoned Sugi Plantations to Regenerative Forest Assets
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## Restoring Forests Through Fruit Trees, Wild Vegetables, Mushrooms, Humus, and Local Circular Value
 
 [日本語版はこちら / Japanese version](README_ja.md)
